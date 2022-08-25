@@ -5,7 +5,7 @@
 
 _**Buy any Product and get warranty attached NFT**_ <br />
 
-### 🎯 Our Goals :
+### 🎯 Product Goals :
 
 1.  Product warranty card as an NFT.
 2.  Ownership of product through NFTs
